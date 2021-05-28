@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Mr-Death-Force a youtuber lol
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning also programming
+- 💞️ I’m looking to collaborate on Nothing yet
+- 📫 How to reach me Null
+- Have a nice ( or any type of ) day
