@@ -2,6 +2,6 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning also programming
 - 💞️ I’m looking to collaborate on Nothing yet
-- 📫 How to reach me Null
+- 📫 How to reach me Null ( No way to reach me )
 - Have a nice ( or any type of ) day
 - hi bie
