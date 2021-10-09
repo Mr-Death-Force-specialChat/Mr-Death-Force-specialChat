@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning also programming
 - 📫 How to reach me Null ( No way to reach me )
 - Have a nice ( or any type of ) day
-- hi bie
+- hi, bye
