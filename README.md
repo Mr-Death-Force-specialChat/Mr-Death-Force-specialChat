@@ -4,7 +4,7 @@
 - 📫 How to reach me Null ( No way to reach me )
 - Have a nice ( or any type of ) day
 - hi, bye
-- also drink coffe.
+- also drink coffe. ( missing effectifness )
 <br>
 <br>
 <br>
